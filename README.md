@@ -1,4 +1,4 @@
-## Hi there Shenchu 👋
+## Hi there, I'm Shenchu 👋
 
 📖 Currently studying Computer Science at Alcalá University<br/>
 🖱️ Love playing shooter games<br/>
